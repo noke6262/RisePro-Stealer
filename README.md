@@ -1,4 +1,6 @@
 # RisePro-Stealer
+User1345739411
+_ZXXLSLrwt
 
 <a href="https://ibb.co/W66tYN0"><img src="https://i.ibb.co/vHHYKCh/rise.png" alt="rise" border="0"></a>
 
